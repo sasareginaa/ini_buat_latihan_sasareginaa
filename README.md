@@ -1,3 +1,5 @@
 # ini_buat_latihan_sasareginaa
-#semoga bisa coding aamiin
-#nawaitu bisa prokom :)
+# semoga bisa coding aamiin
+# nawaitu bisa prokom :)
+# hahahaha
+# fufufufufu
